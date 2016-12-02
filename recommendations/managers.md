@@ -1,3 +1,5 @@
 >Kerri is extremely hard working, loyal, responsible, and committed to excellence. Kerri works best in a collaborative environment where she may play devil's advocate in one discussion, and argue passionately for a better approach another conversation. She is always exploring new advances both within her field, and in a wide variety of fascinating interests outside the office. Kerri is as committed to a good business result as a good engineering product. Kerri is the developer working weekends even when not in crunch mode, the voice in the room pointing out the Emperor's new clothes, and the team member who always finds an appropriately silly website to boost spirits when times are low. Special recommendation for Kerri's status reports which are the most entertaining status reports ever.
 
 Blunt Jackson, managed Kerri at Contour, Inc.
+
+---
